@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @Cr0wpm
-- 👀 I’m interested in alot of things actually
+- Names Sam!
